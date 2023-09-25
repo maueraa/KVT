@@ -1,0 +1,2 @@
+# KVT
+Kvadrat tenlamaning loyihasi
